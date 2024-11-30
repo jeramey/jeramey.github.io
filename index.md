@@ -27,3 +27,7 @@
 * [Python docs](https://docs.python.org)
 * [Emacs Wiki](https://www.emacswiki.org)
 
+### Recipes
+
+* [Easy Pressure Cooker Cassoulet](recipes/electric-pressure-cooker-cassoulet.html)
+* [Savory Bread Pudding](recipes/savory-bread-pudding.html)
