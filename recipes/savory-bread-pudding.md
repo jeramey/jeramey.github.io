@@ -14,6 +14,7 @@ Equipment
 * A large baking sheet
 * A large mixing bowl
 * A medium-sized mixing bowl
+* Large frying pan
 * A large enameled Dutch or French oven or ceramic making dish
 * Wire whisk
 * Microplane or fine cheese shredder
