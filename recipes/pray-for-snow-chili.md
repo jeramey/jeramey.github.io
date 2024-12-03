@@ -30,7 +30,7 @@ Ingredients
 * 20 oz can crushed tomatoes (Muir Glen fire roasted preferred)
 * 7 oz can of chipotles in adobo sauce (Herdez brand preferred)
 * 1 lb ground beef (wagyu)
-* 8 beef short ribs
+* 8 beef short ribs (about 1.5-2 lbs)
 * 1 tbsp hatch chili powder
 * 2 tsp ground cumin
 * 2 tsp ground coriander
