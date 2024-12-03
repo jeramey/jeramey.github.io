@@ -67,7 +67,12 @@ Preparation
 Hints and Tips
 --------------
 
-Try different peppers and chili powders.
+If the chili isn't thickened enough, just continue cooking in the oven
+so that the liquid continues to reduce. You can also do this on the
+stove top, but this will cause a lot more splattering!
+
+Try different peppers and chili powders. For more heat, try arbol
+chilies!
 
 If you don't have Marmite, you can try another umami bomb like anchovy
 paste, fish sauce, or even soy sauce.
