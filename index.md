@@ -31,3 +31,4 @@
 
 * [Easy Pressure Cooker Cassoulet](recipes/electric-pressure-cooker-cassoulet.html)
 * [Savory Bread Pudding](recipes/savory-bread-pudding.html)
+* [Pray For Snow Chili](recipes/pray-for-snow-chili.html)
