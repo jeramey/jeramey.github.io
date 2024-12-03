@@ -62,7 +62,7 @@ Preparation
 
 10. Put the Dutch oven into the oven with the cover on and let the chili cook for about 3 hours. Remove the lid and cook for another hour or so until the liquid has reduced slightly.
 
-11. Remove from the oven, season with any additional salt or chili powders to taste, and serve. (For even better flavor, let the chili cool, then refrigerate it overnight. Reheat and serve.)
+11. Remove from the oven, and using tongs, remove the bones and any tough skin that might have come off the bones during cooking. Season with any additional salt or chili powders to taste, and serve. (For even better flavor, let the chili cool, then refrigerate it overnight. Reheat and serve.)
 
 Hints and Tips
 --------------
