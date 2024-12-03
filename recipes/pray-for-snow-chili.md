@@ -44,7 +44,7 @@ Preparation
 
 1. Preheat oven to 300F
 
-2. De-seed and finely dice the serrano, jalapeno, habanero, and bell peppers and set aside in a mise-en-place bowl.
+2. De-seed and finely dice the serrano, jalapeno, habanero, and bell peppers and set aside in a mise-en-place bowl. Don't touch your eyes or wipe your nose!
 
 3. Dice the onions and set aside in a mise-en-place bowl.
 
